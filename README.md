@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kanneki
 - 👀 I’m interested in Web Design
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning everything i can learn about web!
 - 
 - 📫 How to reach me motassim.contact@gmail.com
 
